@@ -4,5 +4,5 @@ para practicar
 
 
 
-Aquí estamos
+Aquí estamos asqueados de estar enfermos.
 
