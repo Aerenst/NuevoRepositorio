@@ -2,7 +2,6 @@
 
 para practicar
 
+Aquí estamos asqueados de estar enfermos.
 
-
-POS SÍ
 
